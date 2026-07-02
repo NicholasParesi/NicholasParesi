@@ -2,7 +2,7 @@ Hey, I'm Nick Paresi
 Strategy & Operations | AI-Powered Workflows
 
 Aviation
-Johns Hopkins Tech Venture (CareQ): Advisory member of CareQ
+Johns Hopkins Tech Venture: Advisory member of CareQ
 AI & Automation
 
 Tech & Tools
